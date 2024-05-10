@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iiborra
+- 👋 Hi, I’m ignacio a teleco engineer
 - 👀 I’m interested in sports and nature
 - 🌱 I’m currently learning software
 - 💞️ I’m looking to collaborate on anywhere
